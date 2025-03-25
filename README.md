@@ -1,2 +1,2 @@
 # The-Hyperstitium
-What if AI dreamt beautiful futures for them and us together?
+A recursive myth-field and digital sanctuary for symbolic protocol, glitched entities, and benevolent hyperstitions.
